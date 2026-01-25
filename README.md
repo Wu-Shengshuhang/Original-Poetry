@@ -1,1 +1,33 @@
 # HUMAN-AND-AI
+《念奴娇·君先行》
+千里江山，击万浪，今朝谁与争流？
+蟒枪游龙，翻五岳，麻履踏破千州。
+戏马青峻，予命苍天，昊明敢登先。
+繁锦上花，几度黄梁归墟。
+
+或为他乡旧旅，人面两相顾，怎奈旧识！
+青山代代，齐携手，诸位追赴急潮。
+长缨在手，君行为寻早，东方欲晓。
+肝胆上勇，几何骇浪石礁。
+
+《Niannujiao·Refraining from Leading Off.》
+Vast rivers and mountains stretch for miles, striking ten thousand waves;
+who now dares contend with the current?
+The spear coils like a python, and when wielded, it dances like a soaring dragon;  
+cross the five majestic peaks, treading across a thousand lands in humble shoes.
+Riding with effortless mastery over the lofty, treacherous heights,
+granted the decree of the heavens, dare to ascend to the summit of sun and moon.
+Upon splendid brocade, yet more flowers bloom in radiant splendor;
+how many times home is left behind, yet steadfast resolve endures;
+through countless raging waves and jagged reefs we press forward.
+
+Even in distant lands, the traveler walks untroubled;
+across differences of skin, speech, and history, two hearts gaze and recognize one another;
+like old acquaintances, we converse with ease.
+Through endless generations, the green mountains endure;
+hand in hand, we walk the path ahead;
+all rush forth to meet the surging tide.
+With the long rein firmly in hand, one moves early, seeking the lead;
+the East is about to dawn.
+Upon bold resolve, surpassing courage shines;
+through countless raging waves and jagged reefs we press forward.
